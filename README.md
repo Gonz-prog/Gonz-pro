@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Gonz-prog
+- 👋 Hi, I’m @Gonz-pro
 - 👀 I’m interested in Tecnology
 - 🌱 I’m currently learning WAD
 - 💞️ I’m looking to collaborate on WA 
